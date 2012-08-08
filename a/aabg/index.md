@@ -44,5 +44,8 @@ Krankenkassen verteilen den jeweiligen Betrag entsprechend dem in Satz
 
 (1) Das Gesetz tritt am Tag nach der Verkündung in Kraft.
 
-(2)
+(2)sdfsd
+
+sdf
+sd
 
